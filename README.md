@@ -1,0 +1,1 @@
+# Gejowe skrypty
